@@ -36,10 +36,10 @@ The five artists included in my project have had lengthy and varied music career
 
 ___
 
-1. Crowe, Cameron (July 26, 1979). "Joni Mitchell" (reprint). Rolling Stone. Archived from the original on March 26, 2012. Retrieved November 10, 2024. ↩
+1. Crowe, Cameron (July 26, 1979). "Joni Mitchell" (reprint). Rolling Stone. Archived from the original on March 26, 2012. Retrieved November 10, 2024.
 
-2. Davis (2006). Stevie Wonder: Rhythms of Wonder. Pavilion Books. p. 72. ISBN 9781861059659. ↩
+2. Davis (2006). Stevie Wonder: Rhythms of Wonder. Pavilion Books. p. 72. ISBN 9781861059659.
 
-3. "Bob Dylan". Salon. May 5, 2001. Retrieved November 10, 2024. ↩
+3. "Bob Dylan". Salon. May 5, 2001. Retrieved November 10, 2024.
 
-4. Young, Cook. "Review of Time Out of Mind". NY Rock. Archived from the original on November 26, 2010. Retrieved November 10, 2024. ↩
+4. Young, Cook. "Review of Time Out of Mind". NY Rock. Archived from the original on November 26, 2010. Retrieved November 10, 2024.
